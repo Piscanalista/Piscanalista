@@ -1,3 +1,3 @@
 eu sou o arthur e sou estudante do cesf CL
 
-![ddd](https://tenor.com/pt-BR/view/pessi-gif-21021529#)
+![ddd](https://media1.tenor.com/m/N1bwJbGUPNgAAAAC/thank-you-alice-in-wonderland.gif)
